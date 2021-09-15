@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @husssainadeli
 - 👀 I’m interested in to get meaningful and actionable insights from data
-- 🌱 Idiaspora...
+- 🌱 Diaspora...
 - 📫 Leave me your message here
 
 <!---
